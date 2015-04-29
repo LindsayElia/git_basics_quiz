@@ -2,20 +2,20 @@
 
 ###What is your name?
 
-Your answer goes here
+Lindsay Elia
 
 ###What is your favorite color?
 
-Your answer goes here
+lime green
 
 ###Cats or Dogs?
 
-Your answer goes here
+both, why do I have to choose?
 
 ###What would constitute a “perfect” day for you?
 
-Your answer goes here
+Sleeping in, going to brunch with friends, taking a walk on a sunny day, playing with my cat, seeing some kids, going to the movies with friends, and getting a Vegan Meatless Mike sandwich from Ike's Place.
 
 ###Given the choice of anyone in the world, whom would you want as a dinner guest?
 
-Your answer goes here
+My friend who lives in London and her family, who I do not get to see very often. :)
